@@ -1,4 +1,4 @@
-### Hi there 👋, I'm Md. Sumon Reja
+### Hi I'm Md. Sumon Reja
 #### Web Developer
 ![Web Developer](https://scontent.fdac155-1.fna.fbcdn.net/v/t1.6435-9/117288218_601895413820780_1028630684022968990_n.jpg?_nc_cat=105&ccb=1-7&_nc_sid=e3f864&_nc_eui2=AeHHoOWAcXRI0nN1GE3dbzjyXb3K9JhvQP5dvcr0mG9A_ljR5ABYju3WNBA5-sZRoX-di9tiP3G_sQDHtRB7yXT8&_nc_ohc=l618RhlOOV4AX9E-i06&tn=-tGH2wIn57uuIQvF&_nc_ht=scontent.fdac155-1.fna&oh=00_AfCJySC3BU5zto6sdEjOx13PJXmKeCag8Qfw84brcHg-Ig&oe=641480D7)
 
